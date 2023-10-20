@@ -40,7 +40,7 @@ finally, i would like to conclude that this project aims in contrubuting for the
 I would like to express my gratitude to the entire byts team and our CDC cell of RGMCET for thinking about our career ehancement and for providing this kind of wonderful opportunities.
 
 # contact
-For any Queries,please contact neelofar2305@gmail.com
+For any Queries,please contact dudekulahasina58@gmail.com
  
  Thankyou
  
